@@ -1,2 +1,2 @@
 # PornHub4Go
-Have a good night
+エロは世界を救うってそれ一番言われてるから
